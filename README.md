@@ -1,0 +1,1 @@
+# Szko-a_informatyka
